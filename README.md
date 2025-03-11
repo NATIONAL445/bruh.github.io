@@ -1,1 +1,1 @@
-# bruh.github.io
+# NO DUCK ALLOWED
